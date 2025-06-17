@@ -10,7 +10,9 @@ An AI PC is the next computing era—a PC optimized for intelligent, private, 
 
 Additional link:
 https://www.reuters.com/technology/what-are-ai-pcs-2024-05-21/?utm_source=chatgpt.com
+
 https://www.youtube.com/watch?v=Myg4EP3AU0E
+
 https://www.youtube.com/watch?v=nVyD6THcvDQ&pp=ygUed2hhdCBpcyBhaSBwYyBhbmQgaXRzIGZlYXR1cmVz
 
 
